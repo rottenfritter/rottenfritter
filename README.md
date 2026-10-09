@@ -1,2 +1,2 @@
-<img src="https://file.garden/ZRbRxMpOlUzNliM1/zombietennabanner.png">
+<img src="https://file.garden/ZRbRxMpOlUzNliM1/zombietennabanner.png"  width="100%">
 
