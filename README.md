@@ -1,4 +1,4 @@
-<img src="https://file.garden/ZRbRxMpOlUzNliM1/Untitled225_20261009185022.png"  width="1500px" height="500px">
+<img src="https://file.garden/ZRbRxMpOlUzNliM1/Untitled225_20261009185022.png"  width="2000px" height="500px">
 
 　　　　　　　　　　　　　　　. <img src="https://file.garden/ZRbRxMpOlUzNliM1/ZOMBIEDIV2.png" width="500px" height="75px" align=center> .
 
