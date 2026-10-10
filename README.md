@@ -14,4 +14,4 @@
 
 <p align="right"> 
   <img src="https://file.garden/ZRbRxMpOlUzNliM1/zombieheart.gif">
-  <a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fsisypheann"><img src="https://api.visitorbadge.io/api/combined?path=https%3A%2F%2Fgithub.com%2Fsisypheann&label=beloved%20onlookers&labelColor=%2365695a&countColor=%233e4233&style=plastic&labelStyle=lower" /></a>
+<a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Frottenfritter"><img src="https://api.visitorbadge.io/api/combined?path=https%3A%2F%2Fgithub.com%2Frottenfritter&label=SPOILED%20ROTTEN%20AUDIENCE!&labelColor=%23440a09&countColor=%23370504&style=plastic&labelStyle=none" /></a> </p>
