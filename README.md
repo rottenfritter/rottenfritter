@@ -1,12 +1,15 @@
-<img src="https://file.garden/ZRbRxMpOlUzNliM1/Untitled225_20261009185022.png"  width="1500px" height="500px">
-<img src="https://file.garden/ZRbRxMpOlUzNliM1/ZOMBIEDIV2.png" width="1500px" height="100px">
-                               hiii. hiii! name is elo/elohim, pronouns are hy/hymn. you better remember it!!!  
+<img src="https://file.garden/ZRbRxMpOlUzNliM1/Untitled70_20260406235905.png" align=center  width="1000" height="253">
+  <img src="https://file.garden/ZRbRxMpOlUzNliM1/sacchadoll.gif" align=right>
 
-<p> <img src="https://file.garden/ZRbRxMpOlUzNliM1/zombieapple.gif"> our current interests consist of Our Wife (11/14 <3!), deltarune, rainworld, and phighting! </p>
-<p> <img src="https://file.garden/ZRbRxMpOlUzNliM1/zombieheart.gif"> permanently oti and c+h are ok!! i would love to speak to potential friendlings! our way of speech may be strange and potentially illegible, however. so apolocheese in that regard</p>
+　　　　　　　　　　　　　　　. <img src="https://file.garden/ZRbRxMpOlUzNliM1/tumblr_6a9998f65069eb3deae4c4ede927e55a_611846a5_250.gif" align=center> .
+###  <p align="center">☾the mentality of a boulder, immovable object verus.. ↴☽
 
+　　　　　　　　　　　　　　　　　　　　𓊆[my website](https://sisyphus.nekoweb.org/)  ✿ [atabook](https://sisyphus.atabook.org/)𓊇
 
- 
-<p> <img src="https://file.garden/ZRbRxMpOlUzNliM1/zombieapple.gif"> taking inspiration from our ponylings is 100% okay, just dont take the entire thing!! </p>
-<p> <img src="https://file.garden/ZRbRxMpOlUzNliM1/zombieheart.gif"> you can (probably) find us frolicking near the docks or ut/dr area! </p>
-<img src="https://file.garden/ZRbRxMpOlUzNliM1/ZOMBIEDIV2.png" width="1500px" height="100px">
+<p><p align="center">𓏫 ུ   elohim   ۪ ۪‿ྀ◜ ͡ ◟ ֯  hy/hymn </p>
+<p> <p align="center"> ⋮ ♯  c+h is encouraged (っ҂ཀ•)っ im typically offtab, w2i ഒ·˚</p>
+<p> <p align="center"> very VERY nervous to interact with others but we love company but typically wont interact first
+
+### <p align="center">☾the mentality of sisyphus, unstoppable force versus..⤴︎☽
+　　　　　　　　　　　　　　　. <img src="https://file.garden/ZRbRxMpOlUzNliM1/tumblr_6a9998f65069eb3deae4c4ede927e55a_611846a5_250.gif" align=center> .
+<p align="right">♡<a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fsisypheann"><img src="https://api.visitorbadge.io/api/combined?path=https%3A%2F%2Fgithub.com%2Fsisypheann&label=beloved%20onlookers&labelColor=%2365695a&countColor=%233e4233&style=plastic&labelStyle=lower" /></a>♡
