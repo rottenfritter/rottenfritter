@@ -7,7 +7,7 @@
 
 <p><p align="center">𓏫 ུ   elohim   ۪ ۪‿ྀ◜ ͡ ◟ ֯  hy/hymn </p>
 <p> <p align="center"> ⋮ ♯  c+h is encouraged (っ҂ཀ•)っ im typically offtab, w2i ഒ·˚</p>
-<p> <p align="center"> very VERY nervous to interact with others but <br> we love company but typically wont interact first
+<p> <p align="center"> very VERY nervous to interact with others, <br> we love company but typically wont interact first
 
 
 　　　　　　　　　　　　　　　. <img src="https://file.garden/ZRbRxMpOlUzNliM1/ZOMBIEDIV2.png" width="500px" height="75px" align=center> .
