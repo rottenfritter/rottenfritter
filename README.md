@@ -1,22 +1,52 @@
-<img src="https://file.garden/ZRbRxMpOlUzNliM1/Untitled225_20261009185022.png"  width="2000px" height="500px">
+<img src="https://file.garden/ZRbRxMpOlUzNliM1/Untitled225_20261009185022.png" width="1000" align="left">
+<!-- $\color{#961e1f}{\textsf{  }}$
+$\color{#a24138}{\textsf{  }}$
+<a href=""></a> --!>
 
-　　　　　　　　　　　　　　　. <img src="https://file.garden/ZRbRxMpOlUzNliM1/ZOMBIEDIV2.png" width="500px" height="75px" align=center> .
 
-
-　　　　　　　　　　　　　　　　　　　　　　　　　　𓊆[my website](https://sisyphus.nekoweb.org/)  <img src="https://file.garden/ZRbRxMpOlUzNliM1/zombieapple.gif"> [atabook](https://sisyphus.atabook.org/)𓊇
-
-<p><p align="center">𓏫 ུ   elohim   ۪ ۪‿ྀ◜ ͡ ◟ ֯  hy/hymn </p>
-<p> <p align="center"> ⋮ ♯  c+h is encouraged (っ҂ཀ•)っ im typically offtab, w2i ഒ·˚</p>
-<p> <p align="center"> very VERY nervous to interact with others, <br> we love company but typically wont interact first
-<p><p align="center">feel free to take inspo from my ponylings, <br> just dont copy them in their entirety!</p>
-
-　　　　　　　　　　　　　　　. <img src="https://file.garden/ZRbRxMpOlUzNliM1/ZOMBIEDIV2.png" width="500px" height="75px" align=center> .
-               <p><p align="center">our current main interests are deltarune, phighting, and rainworld!</p>
-<p><p align="center">we have unlisted mental disorders that might <br> make us act/talk incomprehensibly, sorry!</p>
-<p><p align="center">more tba as time goes on!</p>
-
-<p><p align="center"> 
-  <img src="https://file.garden/ZRbRxMpOlUzNliM1/zombieheart.gif">
+<table border="0" align="left">
+<th>
+    <img src="https://file.garden/ZRbRxMpOlUzNliM1/ZOMBIEDIV2.png" width="400">
+    <p><p align="center"> 
+    𓊆<a href="https://sisyphus.nekoweb.org/">my website</a>  <img src="https://file.garden/ZRbRxMpOlUzNliM1/zombieapple.gif"> <a href="https://sisyphus.atabook.org/">atabook</a>𓊇
+<p align="center">
+    <br>
+$\color{#a24138}{\textsf{𓏫 ུ   my name is elo/elohim!   ۪ ۪‿ྀ◜ ͡ ◟ ֯  prns r hy/hymn}}$
+    <br>
+$\color{#a24138}{\textsf{  ⋮ ♯  c+h is encouraged (っ҂ཀ•)っ im typically offtab, w2i ഒ·˚ }}$
+    <br>
+$\color{#a24138}{\textsf{ defer+delta tenna fict }}$
+    <br>
+    <br>
+$\color{#961e1f}{\textsf{ㅤ﹒very VERY nervous to interact with others, we love }}$ <br>
+$\color{#961e1f}{\textsf{ㅤcompany but typically wont interact first  ﹕☆}}$
+<img src="https://file.garden/ZRbRxMpOlUzNliM1/image-c583-gradientmap.pro.png" width="30" align="left">
+    <br>
+    <br>
+$\color{#a24138}{\textsf{    ︵  feel free to take inspo from my ponylings, }}$ <br>
+$\color{#a24138}{\textsf{ just dont copy them in their entirety  .ᐟ  }}$
+<img src="https://file.garden/ZRbRxMpOlUzNliM1/image-0a3c-gradientmap.pro.png" width="30" align="left">
+</p>
+<p align="center">
+<img src="https://file.garden/ZRbRxMpOlUzNliM1/ZOMBIEDIV2.png" width="400">
+</p>
+$\color{#961e1f}{\textsf{ㅤ･ ⟢ ⋮ our current main interests are deltarune,}}$ <br>
+$\color{#961e1f}{\textsf{ㅤphighting, and rainworld!  ゛༝.}}$
+<br>
+<br>
+$\color{#a24138}{\textsf{ 𓈒 ݁ ⊹ we have unlisted mental disorders}}$ <br>
+$\color{#a24138}{\textsf{ that might make us act/talk incomprehensibly, sorry!  }}$ <Br>
+<br>
+<img src="https://file.garden/ZRbRxMpOlUzNliM1/zombieheart.gif">
 <a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Frottenfritter"><img src="https://api.visitorbadge.io/api/combined?path=https%3A%2F%2Fgithub.com%2Frottenfritter&label=SPOILED%20ROTTEN%20AUDIENCE!&labelColor=%23440a09&countColor=%23370504&style=plastic&labelStyle=none" /></a> </p>
+    <img src="https://file.garden/ZRbRxMpOlUzNliM1/ZOMBIEDIV2.png" width="400">
+</th>
+</table>
 
-　　　　　　　　　　　　　　　. <img src="https://file.garden/ZRbRxMpOlUzNliM1/ZOMBIEDIV2.png" width="500px" height="75px" align=center> .
+<p align="right"> 
+<img src="https://file.garden/ZRbRxMpOlUzNliM1/feacher.png" width=550px>
+</p>
+<p align="center"> 
+$\color{#961e1f}{\textsf{ㅤ ｉｍ　ｏｆ　ｔｗｏ　ｃｒｔｓ　ａｂｏｕｔ　ｔｈｉｓ}}$
+$\color{#961e1f}{\textsf{ㅤ （ｂｏｔｈ　ｏｆ　ｔｈｅｍ　ａｒｅ　ｋｉｓｓｉｎｇ）}}$
+</p>
