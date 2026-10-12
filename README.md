@@ -44,7 +44,7 @@ $\color{#a24138}{\textsf{ that might make us act/talk incomprehensibly, sorry!  
 </table>
 
 <p align="right"> 
-<img src="https://file.garden/ZRbRxMpOlUzNliM1/feacher.png" width=300px>
+<img src="https://file.garden/ZRbRxMpOlUzNliM1/feacher.png" width=350px>
 </p>
 <p align="center"> 
 $\color{#961e1f}{\textsf{ㅤ ｉｍ　ｏｆ　ｔｗｏ　ｃｒｔｓ　ａｂｏｕｔ　ｔｈｉｓ}}$
