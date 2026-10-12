@@ -39,8 +39,8 @@ $\color{#a24138}{\textsf{ that might make us act/talk incomprehensibly, sorry!  
 <br>
 <img src="https://file.garden/ZRbRxMpOlUzNliM1/zombieheart.gif">
 <a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Frottenfritter"><img src="https://api.visitorbadge.io/api/combined?path=https%3A%2F%2Fgithub.com%2Frottenfritter&label=SPOILED%20ROTTEN%20AUDIENCE!&labelColor=%23440a09&countColor=%23370504&style=plastic&labelStyle=none" /></a> </p>
-    <img src="https://file.garden/ZRbRxMpOlUzNliM1/ZOMBIEDIV2.png" width="450">
-    ｍｏｒｅ　ｔｂａ　ａｓ　ｔｈｅ　ｐａｓｓａｇｅ　ｏｆ　ｔｉｍｅ　ｄｒａｇｓ　ｅｖｅｒ　ｏｎｗａｒｄｓ！
+    <img src="https://file.garden/ZRbRxMpOlUzNliM1/ZOMBIEDIV2.png" width="450"> <br>
+    ｍｏｒｅ　ｔｂａ　ａｓ　ｔｈｅ　ｐａｓｓａｇｅ <br>　ｏｆ　ｔｉｍｅ　ｄｒａｇｓ　ｅｖｅｒ　ｏｎｗａｒｄｓ！
 </th>
 </table>
 
