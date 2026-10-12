@@ -8,7 +8,7 @@ $\color{#a24138}{\textsf{  }}$
 <th>
     <img src="https://file.garden/ZRbRxMpOlUzNliM1/ZOMBIEDIV2.png" width="400">
     <p><p align="center"> 
-    𓊆<a href="https://sisyphus.nekoweb.org/">my website</a>  <img src="https://file.garden/ZRbRxMpOlUzNliM1/zombieapple.gif"> <a href="https://sisyphus.atabook.org/">atabook</a>𓊇
+    𓊆<a href="https://sisyphus.nekoweb.org/">nekoweb.org</a>  <img src="https://file.garden/ZRbRxMpOlUzNliM1/zombieapple.gif"> <a href="https://sisyphus.atabook.org/">atabook</a>𓊇
 <p align="center">
     <br>
 $\color{#a24138}{\textsf{𓏫 ུ   my name is elo/elohim!   ۪ ۪‿ྀ◜ ͡ ◟ ֯  prns r hy/hymn}}$
@@ -40,6 +40,7 @@ $\color{#a24138}{\textsf{ that might make us act/talk incomprehensibly, sorry!  
 <img src="https://file.garden/ZRbRxMpOlUzNliM1/zombieheart.gif">
 <a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Frottenfritter"><img src="https://api.visitorbadge.io/api/combined?path=https%3A%2F%2Fgithub.com%2Frottenfritter&label=SPOILED%20ROTTEN%20AUDIENCE!&labelColor=%23440a09&countColor=%23370504&style=plastic&labelStyle=none" /></a> </p>
     <img src="https://file.garden/ZRbRxMpOlUzNliM1/ZOMBIEDIV2.png" width="450">
+    ｍｏｒｅ　ｔｂａ　ａｓ　ｔｈｅ　ｐａｓｓａｇｅ　ｏｆ　ｔｉｍｅ　ｄｒａｇｓ　ｅｖｅｒ　ｏｎｗａｒｄｓ！
 </th>
 </table>
 
