@@ -1,4 +1,4 @@
-<img src="https://file.garden/ZRbRxMpOlUzNliM1/Untitled225_20261009185022.png" width="1000" align="left">
+<img src="https://file.garden/ZRbRxMpOlUzNliM1/Untitled225_20261009185022.png" width="1500" align="left">
 <!-- $\color{#961e1f}{\textsf{  }}$
 $\color{#a24138}{\textsf{  }}$
 <a href=""></a> --!>
