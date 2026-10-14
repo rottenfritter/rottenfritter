@@ -1,6 +1,6 @@
 <img src="https://file.garden/ZRbRxMpOlUzNliM1/Untitled225_20261009185022.png" width="1500" align="left">
-<!-- $\color{#961e1f}{\textsf{  }}$
-$\color{#a24138}{\textsf{  }}$
+<!--$\color{#961e1f}{\textsf{ㅤtba}}$
+$\color{#a24138}{\textsf{tba}}$
 <a href=""></a> --!>
 
 
@@ -51,10 +51,10 @@ $\color{#961e1f}{\textsf{ㅤmore tba as the passage of time drags ever onwards!}
 $\color{#961e1f}{\textsf{ㅤ ｉｍ　ｏｆ　ｔｗｏ　ｃｒｔｓ　ａｂｏｕｔ　ｔｈｉｓ}}$
 $\color{#961e1f}{\textsf{ㅤ （ｂｏｔｈ　ｏｆ　ｔｈｅｍ　ａｒｅ　ｋｉｓｓｉｎｇ）}}$
 
-<p align="center">
+<p>
   <details>
-    <summary>$\color{#e5e1de}{\textsf{to-do list}}$</summary>
-tba
+    <summary>$\color{#a24138}{\textsf{to-do list}}$</summary>
+$\color{#a24138}{\textsf{custom atabook elelelel i have an atabook subscription that gives me the ability to add custom css}}$
   </details>
 </div>
 </p>
