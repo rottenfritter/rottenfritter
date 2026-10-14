@@ -51,9 +51,8 @@ $\color{#961e1f}{\textsf{ㅤmore tba as the passage of time drags ever onwards!}
 $\color{#961e1f}{\textsf{ㅤ ｉｍ　ｏｆ　ｔｗｏ　ｃｒｔｓ　ａｂｏｕｔ　ｔｈｉｓ}}$
 $\color{#961e1f}{\textsf{ㅤ （ｂｏｔｈ　ｏｆ　ｔｈｅｍ　ａｒｅ　ｋｉｓｓｉｎｇ）}}$
 <details open>
-  <summary>...</summary>
+  <summary>to-do list</summary>
   <div>
-    <p>...</p>
-    ...
+    <p>custom atabook</p>
   </div>
 </details>
