@@ -50,4 +50,11 @@ $\color{#961e1f}{\textsf{ㅤmore tba as the passage of time drags ever onwards!}
 <p align="center"> 
 $\color{#961e1f}{\textsf{ㅤ ｉｍ　ｏｆ　ｔｗｏ　ｃｒｔｓ　ａｂｏｕｔ　ｔｈｉｓ}}$
 $\color{#961e1f}{\textsf{ㅤ （ｂｏｔｈ　ｏｆ　ｔｈｅｍ　ａｒｅ　ｋｉｓｓｉｎｇ）}}$
+
+<p align="center">
+  <details>
+    <summary>$\color{#e5e1de}{\textsf{to-do list}}$</summary>
+tba
+  </details>
+</div>
 </p>
