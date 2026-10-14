@@ -50,11 +50,10 @@ $\color{#961e1f}{\textsf{ㅤmore tba as the passage of time drags ever onwards!}
 <p align="center"> 
 $\color{#961e1f}{\textsf{ㅤ ｉｍ　ｏｆ　ｔｗｏ　ｃｒｔｓ　ａｂｏｕｔ　ｔｈｉｓ}}$
 $\color{#961e1f}{\textsf{ㅤ （ｂｏｔｈ　ｏｆ　ｔｈｅｍ　ａｒｅ　ｋｉｓｓｉｎｇ）}}$
-
-<p>
-  <details>
-    <summary>$\color{#a24138}{\textsf{to-do list}}$</summary>
-$\color{#a24138}{\textsf{custom atabook elelelel i have an atabook subscription that gives me the ability to add custom css}}$
-  </details>
-</div>
-</p>
+<details open>
+  <summary>...</summary>
+  <div>
+    <p>...</p>
+    ...
+  </div>
+</details>
