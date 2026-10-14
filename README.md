@@ -51,9 +51,9 @@ $\color{#961e1f}{\textsf{ㅤmore tba as the passage of time drags ever onwards!}
 $\color{#961e1f}{\textsf{ㅤ ｉｍ　ｏｆ　ｔｗｏ　ｃｒｔｓ　ａｂｏｕｔ　ｔｈｉｓ}}$
 $\color{#961e1f}{\textsf{ㅤ （ｂｏｔｈ　ｏｆ　ｔｈｅｍ　ａｒｅ　ｋｉｓｓｉｎｇ）}}$
     
-<table align="left" margin-left="29px">
+<table align="left" margin="29px">
 <th>
-<details open>
+<details>
   <summary>to-do list</summary>
   <div>
     <p>custom atabook <br> strawpage <br> maybe tab for friendlings? <br> find assets to put here. shruug </p>
