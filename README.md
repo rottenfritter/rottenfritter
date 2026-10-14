@@ -50,7 +50,6 @@ $\color{#961e1f}{\textsf{ㅤmore tba as the passage of time drags ever onwards!}
 <p align="center"> 
 $\color{#961e1f}{\textsf{ㅤ ｉｍ　ｏｆ　ｔｗｏ　ｃｒｔｓ　ａｂｏｕｔ　ｔｈｉｓ}}$
 $\color{#961e1f}{\textsf{ㅤ （ｂｏｔｈ　ｏｆ　ｔｈｅｍ　ａｒｅ　ｋｉｓｓｉｎｇ）}}$
-<p> git was last updated on 10/13!</p>
 <table align="right">
 <th>
 <details open>
