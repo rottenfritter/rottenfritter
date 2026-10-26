@@ -11,7 +11,7 @@ $\color{#a24138}{\textsf{tba}}$
     𓊆<a href="https://sisyphus.nekoweb.org/">nekoweb.org</a>  <img src="https://file.garden/ZRbRxMpOlUzNliM1/zombieapple.gif"> <a href="https://sisyphus.atabook.org/">atabook</a>𓊇
 <p align="center">
     <br>
-$\color{#a24138}{\textsf{𓏫 ུ   my name is elo/elohim!   ۪ ۪‿ྀ◜ ͡ ◟ ֯  prns r hy/hymn}}$
+$\color{#a24138}{\textsf{𓏫 ུ   collective name is elo!   ۪ ۪‿ྀ◜ ͡ ◟ ֯  prns r hy/hymn}}$
     <br>
 $\color{#a24138}{\textsf{  ⋮ ♯  c+h is encouraged (っ҂ཀ•)っ im typically offtab, w2i ഒ·˚ }}$
     <br>
